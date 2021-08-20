@@ -9,7 +9,7 @@
 <br>
 <br>
 <p align="center">
-  <img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fprof-kenny.tumblr.com%2Fpost%2F160446041166&psig=AOvVaw03ZM4eAAtcOu6oPgIPmHu_&ust=1629525419251000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCPC3jbb1vvICFQAAAAAdAAAAABAD" width="100">
+  <img src="https://c.tenor.com/kZUb3H7xURYAAAAC/kanna-eating.gif" width="800">
 </p>
 <br>
 <br>
@@ -20,6 +20,7 @@
 <br>
 <br>
 <br>
+
 ----------------------------------
-kynno là một kho lưu trữ ✨ đặc biệt ✨ vì nó là sản phẩm chủ yếu của cá nhân tôi.!
+Kynno là một kho lưu trữ ✨ đặc biệt ✨ vì nó là sản phẩm chủ yếu của cá nhân tôi.!
 Cảm ơn các bạn đã ghé thăm
