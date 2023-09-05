@@ -3,9 +3,9 @@
 - Tên thật của tôi là: Nguyễn Đăng Khoa
 - Tôi sinh ngày 6-2
 - 👀 Tôi quan tâm đến Java scirp
-- 🌱 Tôi hiện đang học THCS
+- 🌱 Tôi hiện đang học THPT Lục Ngạn Số 1
 - 💞️ Tôi đang muốn cộng tác trên đại học CNTT 
-- 📫 Liên hệ với tôi https://www.facebook.com/khoa.dayy12
+- 📫 Liên hệ với tôi https://www.facebook.com/katsuu.12
 <br>
 <br>
 <p align="center">
